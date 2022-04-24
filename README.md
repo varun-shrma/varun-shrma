@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @varun-sharma
+- 👋 Hi, I’m Varun Sharma
 - 👀 I’m interested in ... Video Editing and WEB3 
 - 🌱 I’m currently learning ... Premiere Pro , After Effects and Film-making 
 - 💞️ I’m looking to collaborate on ... Editing for WEB3 content creators 
